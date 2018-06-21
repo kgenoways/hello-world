@@ -9,5 +9,5 @@ Ms. G in here. Please send help.
 Send: 
 - Nachos 
 - and margaritas
-:smirk:
+:wink:
 
